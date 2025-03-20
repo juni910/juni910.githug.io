@@ -1,0 +1,2 @@
+À propos de Anime Streaming
+Bienvenue sur Anime Streaming, ta plateforme de référence pour regarder des animes en streaming de qualité ! Que tu sois un fan de longue date ou un nouveau venu dans l'univers des animes, notre site est conçu pour t'offrir une expérience de visionnage fluide et agréable. Nous proposons une large sélection d'animes, allant des classiques cultes aux dernières séries en vogue, tout en garantissant une qualité optimale.
